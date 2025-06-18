@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pranvkumar
-- 👀 I’m interested in cyber security 
+- 👀 I’m interested in cyber security and ai ml
 - 🌱 I’m currently learning at university of petroleum and energy studies in first year 
 - 📫 How to reach me pranavkshirsagar.409@gmail.com
 knightblade409@gmail.com 
